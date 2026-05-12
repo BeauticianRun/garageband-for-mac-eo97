@@ -1,4 +1,4 @@
-# 
+# Audacity for macOS ultimate Effect: noise-reduction & real-time-effects is the best Audacity for macOS effect, featuring noise-reduction and real-time-effects. Safe, efficient,
 
 
 
